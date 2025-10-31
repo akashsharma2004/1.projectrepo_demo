@@ -1,7 +1,3 @@
-# readme - akash bhai
+# readme - akash bhsi
 
-
-thid is best for programming
-
-
-# Tomorrow cwtc final 2025
+thid is best for ghj
